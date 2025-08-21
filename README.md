@@ -1,2 +1,2 @@
 # belajar-kolaborasi  
-Seruu bngettt lohh
+Seruu juga
